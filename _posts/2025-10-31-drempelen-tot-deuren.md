@@ -17,7 +17,7 @@ I was a new PhD student in a city where I knew no one. Waterstones in Brussels b
   </figcaption>
 </figure>
 
-## Greenwich, April 2024 - choosing a story
+## Greenwich, April 2025 - choosing a story
 I was in London for three days, and you can’t be there and ignore Waterstones. On a quick stop, I went straight to the “suggestion of the month” display. It was an old habit, browsing this shelf. By chance, I picked up ‘There Are Rivers in the Sky’ by Elif Shafak. The book was a heartbreaking exploration of the tragedies of the Yazidis and the Aramaic people, and it reminded me that everyone carries a past that isn’t immediately visible.
 
 <figure>
